@@ -1,4 +1,4 @@
-![](https://github.com/edinsonescobarunal/images-profile/blob/main/portada1.png)
+![](https://github.com/edinsonescobarunal/logo/blob/main/(3)__recortada.png)
 
 
 ## Hello everyone 👋
